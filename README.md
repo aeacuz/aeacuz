@@ -6,3 +6,5 @@ also im below 15
 
 im autistic 
 and im nonbinary
+
+![image alt](https://github.com/aeacuz/aeacuz/blob/f72578f775c375a3a6e6e7523afcfca1c26a6dd3/IMG_2505.gif)
